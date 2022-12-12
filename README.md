@@ -1,1 +1,1 @@
-# noseecuacionsinsimbolosquenoexisten
+# ecuación=√%8-96√(?)(x){XModX=?}{25} y[(?°103/235)]z(perdon no hay simbolo de potencia o elevado que quiero pero les dejare aqui uno𐤑 entonces seria 10111z𐤑⁶) resuelvanla no estan los simbolos del apendix que esta en el closet mio pero les dejo de tarea coger simbolos griegos y fenicios para la ecuación es fisica cuantica si se la saben y programación avanzada en codigo de 3
